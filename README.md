@@ -1,1 +1,1 @@
-# anime
+# Xem anime chất lượng cao
